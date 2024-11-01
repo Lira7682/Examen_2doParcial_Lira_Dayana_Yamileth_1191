@@ -8,17 +8,16 @@
 
 #2
 
+![image](https://github.com/user-attachments/assets/f97df429-fd54-44ff-9a48-1c251ce2b5c2)
+
+![image](https://github.com/user-attachments/assets/f779d704-6558-41d8-bfdc-ec48ccb447d3)
 
 
+#3
 
+![image](https://github.com/user-attachments/assets/ffb83e23-d5e8-4bac-811f-7cb6e3d1f166)
 
-
-
-
-
-
-
-
+![image](https://github.com/user-attachments/assets/15f0e88c-ccf2-44ca-810b-9689f48dcdba)
 
 
 #4
